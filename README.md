@@ -1,6 +1,1 @@
-### Ey yo :v:
-
-I'm Mad and I really like architecting complex things.
-
-Enjoy your life,  
-Mad
+> I have never tried that before, so I think I should definitely be able to do that.
